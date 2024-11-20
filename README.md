@@ -1,4 +1,4 @@
-# AI-Influencers-OTO-1-to-11-Links-30-OFF-Coupon-Code
+# AI Influencers OTO 1 to 11 Links + 30% Off Coupon Code
 
 **AI Influencers OTO**
 
